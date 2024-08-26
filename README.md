@@ -1,2 +1,2 @@
-# SHINY
-Life is an Unexpeted journey..so it's better,,,,Not to expect anything for anyone.....!!!!
+# metrama
+I created this website to tell the story of our friendship.
